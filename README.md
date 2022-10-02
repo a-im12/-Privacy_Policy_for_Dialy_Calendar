@@ -1,1 +1,1 @@
-# -Privacy_Policy_for_Dialy_Calendar
+# Privacy_Policy_for_Dialy_Calendar
